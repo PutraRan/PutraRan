@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Someone love me
 - 📫 How to reach me call 911
 - 😄 Pronouns: Chopstick
-- ⚡ Fun fact: You can call a person with stick, just throw it
+- ⚡ Fun fact: You can call a person with stick, just throw it at the person and the person will approach you
 
 <!---
 PutraRan/PutraRan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
